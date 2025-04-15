@@ -1,0 +1,1 @@
+# TesteGitUCGestaoQualidade20251Ter
